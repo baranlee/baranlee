@@ -19,4 +19,4 @@ Here are some ideas to get you started:
 
 ### :kissing_smiling_eyes: 访客
 
-[![https://count.getloli.com/get/@cxvh?theme=gelbooru](https://count.getloli.com/get/@cxvh?theme=gelbooru)](https://github.com/cxvh/)
+[![https://count.getloli.com/get/@baranlee?theme=gelbooru](https://count.getloli.com/get/@baranlee?theme=gelbooru)](https://github.com/baranlee/)
